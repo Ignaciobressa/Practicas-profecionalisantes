@@ -1,1 +1,1 @@
-# Practicas-profecionalisantes
+# Practicas-profecionalizantes
